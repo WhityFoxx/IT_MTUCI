@@ -39,5 +39,5 @@ affluent - состоятельный, обеспеченный
 a documented ill effect - документально подтвержденное отрицательное воздействие across the board (idiomatic) повсеместно, без исключений
 to proceed at one's own pace двигаться в собственном темпе
 
-
+I'm concerned about my mental health, cause I'm a little bit tired of sixth-day studying. The effectiveness of sixth-day studying is declined. When I'm studying like this I cann't focus attention on any of the subject at all and getting mental tired as well.s
 #ВУЗ
